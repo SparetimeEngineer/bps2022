@@ -1,2 +1,2 @@
-Find a detailed description on this project on:
+Find a detailed description of this project on:
 www.sparetimeengineer.com
